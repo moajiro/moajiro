@@ -2,7 +2,7 @@
 <p align="center"><img width="735" height="413" alt="image" src="https://github.com/user-attachments/assets/0d091454-9143-4c6d-b06e-3114145932c2" /> 
 
 ## <p align="center"> 𝘮𝘢𝘪𝘯 𝘧𝘥 :
-`slow damage , togainu no chi , dramatical murder , хᴏɜяᴇʙᴀ , lying puppies get eaten , yang ilwoo and i , zenles zone zero , honkai star rail , rebound of the heart .`
+`slow damage , togainu no chi , dramatical murder , хᴀɜяᴇʙᴀ , lying puppies get eaten , yang ilwoo and i , zenles zone zero , honkai star rail , rebound of the heart .`
 # <p align="center"> 	𝘋𝘕𝘐 :
 #### <p align="center"> `ɸᴀнᴀᴛы ᴛᴨᴏх . ɸᴀнᴀᴛы джиᴩᴀй ᴋᴇй , ɸᴀнᴀᴛы ᴧᴏᴧᴏᴧᴏɯᴋи , ᴛᴩᴀнᴄы , ᴛᴏᴧᴇᴩᴀɯᴋи , ʍужᴇнᴇнᴀʙиᴄᴛниᴋи , ᴦᴇᴛᴇᴩᴏɸᴏбы , быʙɯиᴇ дᴩуɜья .`
 
