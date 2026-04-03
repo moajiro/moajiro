@@ -1,5 +1,6 @@
 <p align="center"><img width="1280" height="70" alt="image" src="https://github.com/user-attachments/assets/cd72e2b7-0420-4aa6-8c4c-5bbe57752d84" />
-<p align="center"><img width="1280" height="876" alt="image" src="https://github.com/user-attachments/assets/da40d4b3-c1e7-4619-8a3d-fa63ed488f1c" />
+<p align="center"><img width="1280" height="783" alt="image" src="https://github.com/user-attachments/assets/87770359-d9b5-47e1-b428-c9db89f66132" />
+
 
 
 ## <p align="center"> 𝘮𝘢𝘪𝘯 𝘧𝘥 :
