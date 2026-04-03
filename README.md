@@ -1,8 +1,9 @@
 <p align="center"><img width="1280" height="70" alt="image" src="https://github.com/user-attachments/assets/cd72e2b7-0420-4aa6-8c4c-5bbe57752d84" />
-<p align="center"><img width="735" height="413" alt="image" src="https://github.com/user-attachments/assets/0d091454-9143-4c6d-b06e-3114145932c2" /> 
+<p align="center"><img width="1280" height="876" alt="image" src="https://github.com/user-attachments/assets/da40d4b3-c1e7-4619-8a3d-fa63ed488f1c" />
+
 
 ## <p align="center"> 𝘮𝘢𝘪𝘯 𝘧𝘥 :
-`slow damage , togainu no chi , dramatical murder , хᴀɜяᴇʙᴀ , lying puppies get eaten , yang ilwoo and i , zenles zone zero , honkai star rail , chainsaw man , nu:carnival .`
+`lamento , slow damage , togainu no chi , dramatical murder , хᴀɜяᴇʙᴀ , lying puppies get eaten , yang ilwoo and i , zenles zone zero , honkai star rail , chainsaw man , nu:carnival .`
 # <p align="center"> 	𝘋𝘕𝘐 :
 #### <p align="center"> `ɸᴀнᴀᴛы ᴛᴨᴏх . ɸᴀнᴀᴛы джиᴩᴀй ᴋᴇй , ɸᴀнᴀᴛы ᴧᴏᴧᴏᴧᴏɯᴋи , ᴛᴩᴀнᴄы , ᴛᴏᴧᴇᴩᴀɯᴋи , ʍужᴇнᴇнᴀʙиᴄᴛниᴋи , ᴦᴇᴛᴇᴩᴏɸᴏбы , быʙɯиᴇ дᴩуɜья .`
 
