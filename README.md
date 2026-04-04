@@ -22,8 +22,6 @@
 
 <p align="center"><img width="153" height="105" alt="image" src="https://github.com/user-attachments/assets/0203241d-5596-42b9-9d14-5c115518580c" />
 
-<p align="center"> 	серафим господин топ
-
 
 
 
