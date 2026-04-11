@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=moajiro&color=ee659b&label=profile+views+&style=flat&abbreviated=true&base=279)
 <p align="center"><img width="1280" height="70" alt="image" src="https://github.com/user-attachments/assets/cd72e2b7-0420-4aa6-8c4c-5bbe57752d84" />
 <p align="center"><img width="1280" height="783" alt="image" src="https://github.com/user-attachments/assets/87770359-d9b5-47e1-b428-c9db89f66132" />
 
