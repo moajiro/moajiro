@@ -8,7 +8,7 @@
 ## <p align="center"> 𝘮𝘢𝘪𝘯 𝘧𝘥 :
 `lamento , slow damage , togainu no chi , dramatical murder , хᴀɜяᴇʙᴀ , lying puppies get eaten , yang ilwoo and i , chainsaw man , nu:carnival .`
 # <p align="center"> 	𝘋𝘕𝘐 :
-#### <p align="center"> `ɸᴀнᴀᴛы ᴛᴨᴏх . ɸᴀнᴀᴛы джиᴩᴀй ᴋᴇй , ɸᴀнᴀᴛы ᴧᴏᴧᴏᴧᴏɯᴋи , ᴛᴩᴀнᴄы , ᴛᴏᴧᴇᴩᴀɯᴋи , ʍужᴇнᴇнᴀʙиᴄᴛниᴋи , ᴦᴇᴛᴇᴩᴏɸᴏбы , быʙɯиᴇ дᴩуɜья .`
+#### <p align="center"> `ɸᴀнᴀᴛы ᴛᴨᴏх , ɸᴀнᴀᴛы ᴧᴏᴧᴏᴧᴏɯᴋи , ᴛᴩᴀнᴄы , ᴛᴏᴧᴇᴩᴀɯᴋи , ʍужᴇнᴇнᴀʙиᴄᴛниᴋи , ᴦᴇᴛᴇᴩᴏɸᴏбы , быʙɯиᴇ дᴩуɜья .`
 
 <p align="center"><img width="1280" height="70" alt="image" src="https://github.com/user-attachments/assets/cd72e2b7-0420-4aa6-8c4c-5bbe57752d84" />
 
