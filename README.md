@@ -1,3 +1,4 @@
+Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО Я ПЕРЕДЕЛАЮ ЭТО 
 <p align="center"><img width="1280" height="70" alt="image" src="https://github.com/user-attachments/assets/cd72e2b7-0420-4aa6-8c4c-5bbe57752d84" /> 
 <p align="center"><img width="1280" height="741" alt="image" src="https://github.com/user-attachments/assets/9b18badc-e517-4977-afa4-5f79e3000370" />
 
