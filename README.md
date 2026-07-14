@@ -1,13 +1,11 @@
 ![](https://64.media.tumblr.com/2f9de9372c93587b38928a6c3f4a8a57/9f40624fb93ae11e-a0/s2048x3072/4d29d0ce5a0afa247e8fd0df0a07191c06f92e4d.gifv)
 <img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/4daa8c16-a447-4a49-82d2-12e9c05977f4" />
 
-
-![](https://64.media.tumblr.com/9344c1c47e94ad4a65534ca42ae37531/70602799ee2e9958-89/s500x750/bab0a4b2670fd3b6c37d7c94db8c256a86d47a8c.gifv)![](https://64.media.tumblr.com/9344c1c47e94ad4a65534ca42ae37531/70602799ee2e9958-89/s500x750/bab0a4b2670fd3b6c37d7c94db8c256a86d47a8c.gifv)
+![](https://64.media.tumblr.com/296246037ffc31322483d09872baa84c/bb62c4188a5212e5-99/s2048x3072/1791b81b41a90e54f11ec865ddee7d344f3ab330.gifv)
 
 
 >## <p align="center"> 𝐃𝐍𝐈 𝐢𝐟 𝐲𝐨𝐮 :: 𝐭𝐩𝐨𝐡 𝐟𝐚𝐧𝐬 , 𝐥𝐨𝐥𝐨𝐥𝐨𝐬𝐤𝐚 𝐟𝐚𝐧𝐬 , 𝐧𝐬𝐨 𝐟𝐚𝐧𝐬 , 𝐭𝐫𝐚𝐧𝐬 𝐩𝐞𝐨𝐩𝐥𝐞 , 𝐕𝐄𝐑𝐘 𝐭𝐨𝐥𝐞𝐫𝐚𝐧𝐭 , 𝐦𝐢𝐬𝐚𝐧𝐝𝐫𝐢𝐬𝐭 , 𝐡𝐞𝐭𝐞𝐫𝐨𝐩𝐡𝐨𝐛𝐢𝐜 , 𝐞𝐱-𝐟𝐫𝐢𝐞𝐧𝐝𝐬 !
-
-![](https://64.media.tumblr.com/9344c1c47e94ad4a65534ca42ae37531/70602799ee2e9958-89/s500x750/bab0a4b2670fd3b6c37d7c94db8c256a86d47a8c.gifv)![](https://64.media.tumblr.com/9344c1c47e94ad4a65534ca42ae37531/70602799ee2e9958-89/s500x750/bab0a4b2670fd3b6c37d7c94db8c256a86d47a8c.gifv)
+![](https://64.media.tumblr.com/296246037ffc31322483d09872baa84c/bb62c4188a5212e5-99/s2048x3072/1791b81b41a90e54f11ec865ddee7d344f3ab330.gifv)
 
 
 <img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/3ade56ea-dfa5-42c3-9bc7-817fa56d668e" /> <img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/7c05e13a-2edd-4ba9-b09d-a11e997b7d3a" /><img width="99" height="59" alt="image" src="https://github.com/user-attachments/assets/14d74a7b-e3d7-432d-800a-805ef60e60d1" />
