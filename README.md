@@ -2,7 +2,7 @@
 <img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/4daa8c16-a447-4a49-82d2-12e9c05977f4" />
 <img width="1000" height="8" alt="image" src="https://github.com/user-attachments/assets/22527d26-2232-4151-befe-2f44b4396ad6" />
 
->## <p align="center"> 𝐃𝐍𝐈 𝐢𝐟 𝐲𝐨𝐮 :: 𝐭𝐩𝐨𝐡 𝐟𝐚𝐧𝐬 , 𝐥𝐨𝐥𝐨𝐥𝐨𝐬𝐤𝐚 𝐟𝐚𝐧𝐬 , 𝐧𝐬𝐨 𝐟𝐚𝐧𝐬 , 𝐭𝐫𝐚𝐧𝐬 𝐩𝐞𝐨𝐩𝐥𝐞 , 𝐕𝐄𝐑𝐘 𝐭𝐨𝐥𝐞𝐫𝐚𝐧𝐭 , 𝐦𝐢𝐬𝐚𝐧𝐝𝐫𝐢𝐬𝐭 , 𝐡𝐞𝐭𝐞𝐫𝐨𝐩𝐡𝐨𝐛𝐢𝐜 , 𝐞𝐱-𝐟𝐫𝐢𝐞𝐧𝐝𝐬 ! <img width="45" height="40" alt="image" src="https://github.com/user-attachments/assets/28f20f1f-41ae-4602-84a5-e8457f65e5e7" />
+>## <p align="center"> ✗ 𝐃𝐍𝐈 𝐢𝐟 𝐲𝐨𝐮 :: 𝐭𝐩𝐨𝐡 𝐟𝐚𝐧𝐬 , 𝐥𝐨𝐥𝐨𝐥𝐨𝐬𝐤𝐚 𝐟𝐚𝐧𝐬 , 𝐧𝐬𝐨 𝐟𝐚𝐧𝐬 , 𝐭𝐫𝐚𝐧𝐬 𝐩𝐞𝐨𝐩𝐥𝐞 , 𝐕𝐄𝐑𝐘 𝐭𝐨𝐥𝐞𝐫𝐚𝐧𝐭 , 𝐦𝐢𝐬𝐚𝐧𝐝𝐫𝐢𝐬𝐭 , 𝐡𝐞𝐭𝐞𝐫𝐨𝐩𝐡𝐨𝐛𝐢𝐜 , 𝐞𝐱-𝐟𝐫𝐢𝐞𝐧𝐝𝐬 ! <img width="45" height="40" alt="image" src="https://github.com/user-attachments/assets/28f20f1f-41ae-4602-84a5-e8457f65e5e7" />
 
 <img width="1000" height="8" alt="image" src="https://github.com/user-attachments/assets/274adacc-e5d7-4515-93e6-ffb6ae907a59" />
 
