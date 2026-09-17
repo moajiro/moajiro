@@ -5,7 +5,7 @@
 <img width="1080" height="6" alt="image" src="https://github.com/user-attachments/assets/de04a044-9bcf-4b92-902c-bf952b4a5576" />
 
 
->### <p align="center"> hi im too damn lazy to think up some extra stuff to throw in here, so im just gonna leave this here... <img width="75" height="55" alt="image" src="https://github.com/user-attachments/assets/01ecf810-89c1-4187-950e-3f5333239ad5" />
+>### <p align="center"> hi im too damn lazy to think up some extra stuff to throw in here, so im just gonna leave this here <img width="75" height="45" alt="image" src="https://github.com/user-attachments/assets/01ecf810-89c1-4187-950e-3f5333239ad5" />
 <img width="1080" height="6" alt="image" src="https://github.com/user-attachments/assets/861cc69b-13ef-4ce1-91c8-5315f11c7536" />
 
 
