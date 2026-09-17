@@ -1,13 +1,21 @@
-![](https://64.media.tumblr.com/2f9de9372c93587b38928a6c3f4a8a57/9f40624fb93ae11e-a0/s2048x3072/4d29d0ce5a0afa247e8fd0df0a07191c06f92e4d.gifv)
+<img width="1280" height="60" alt="image" src="https://github.com/user-attachments/assets/68812142-a12e-45d2-8700-3d8a20a31677" />
 
-да ало гифка не ставится сука 
->## <p align="center"> hi im too damn lazy to think up some extra stuff to throw in here, so im just gonna leave this here... <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/af89136f-60bb-4ed5-817e-772f7d497f4f" />
+<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/2f332a32-e004-40d5-a2a6-cd392a21d31c" />
 
-<img width="1000" height="8" alt="image" src="https://github.com/user-attachments/assets/274adacc-e5d7-4515-93e6-ffb6ae907a59" />
-
+<img width="1080" height="6" alt="image" src="https://github.com/user-attachments/assets/de04a044-9bcf-4b92-902c-bf952b4a5576" />
 
 
-ㅤ <img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/afbb5653-38c8-45f1-91e4-5a5368d8f434" />
- <img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/7c05e13a-2edd-4ba9-b09d-a11e997b7d3a" /><img width="99" height="59" alt="image" src="https://github.com/user-attachments/assets/14d74a7b-e3d7-432d-800a-805ef60e60d1" />
- <img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/efc91e87-6a36-4112-82e6-06a8af3782b7" />
-![](https://64.media.tumblr.com/efa376fe873e577e2a29948dfb09f11b/08136fe14c0616a2-14/s100x200/4736bd4413deba38f580cf77db8e617b1804e6d0.gifv)<img width="105" height="58" alt="image" src="https://github.com/user-attachments/assets/64ecceaa-68f1-43b8-b14e-691cbe2e8273" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7838f8ac-8cfb-4edd-b33c-0082c1c635e2" /><img width="99" height="59" alt="image" src="https://github.com/user-attachments/assets/ce31adc8-1e53-4734-b122-47da37c66b99" />
+>### <p align="center"> hi im too damn lazy to think up some extra stuff to throw in here, so im just gonna leave this here... <img width="75" height="55" alt="image" src="https://github.com/user-attachments/assets/01ecf810-89c1-4187-950e-3f5333239ad5" />
+<img width="1080" height="6" alt="image" src="https://github.com/user-attachments/assets/861cc69b-13ef-4ce1-91c8-5315f11c7536" />
+
+
+ㅤ<img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/e57dac64-d318-4447-a1d5-d86c13094527" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/322b48e2-e5da-4080-831b-865a16307eff" />
+<img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/14d74a7b-e3d7-432d-800a-805ef60e60d1" />
+ <img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/efc91e87-6a36-4112-82e6-06a8af3782b7" /><img width="99" height="60" alt="image" src="https://github.com/user-attachments/assets/7944c405-e7e6-4a9e-9c9c-0c0f8fdf9e86" /><img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/a5d6dcd0-df1b-4f98-bba8-0dec2de7e360" /><img width="100" height="61" alt="image" src="https://github.com/user-attachments/assets/e2514432-d896-42fe-8c25-540d925cd051" /><img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/bd2493d5-19c2-4c5d-a914-66fba8894d81" />
+
+
+
+
+
+<img width="1280" height="70" alt="image" src="https://github.com/user-attachments/assets/ac497aca-06d6-406f-a631-25bf0454f43a" />
+
