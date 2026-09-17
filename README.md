@@ -1,8 +1,7 @@
 ![](https://64.media.tumblr.com/2f9de9372c93587b38928a6c3f4a8a57/9f40624fb93ae11e-a0/s2048x3072/4d29d0ce5a0afa247e8fd0df0a07191c06f92e4d.gifv)
-<img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/4daa8c16-a447-4a49-82d2-12e9c05977f4" />
-<img width="1000" height="8" alt="image" src="https://github.com/user-attachments/assets/22527d26-2232-4151-befe-2f44b4396ad6" />
+![](https://media.tenor.com/YBFkxA000icAAAPo/persona-5-royal-futaba-sakura.mp4)
 
->## <p align="center"> ✗ 𝐃𝐍𝐈 𝐢𝐟 𝐲𝐨𝐮 :: 𝐭𝐩𝐨𝐡 𝐟𝐚𝐧𝐬 , 𝐥𝐨𝐥𝐨𝐥𝐨𝐬𝐤𝐚 𝐟𝐚𝐧𝐬 , 𝐧𝐬𝐨 𝐟𝐚𝐧𝐬 , 𝐭𝐫𝐚𝐧𝐬 𝐩𝐞𝐨𝐩𝐥𝐞 , 𝐕𝐄𝐑𝐘 𝐭𝐨𝐥𝐞𝐫𝐚𝐧𝐭 , 𝐦𝐢𝐬𝐚𝐧𝐝𝐫𝐢𝐬𝐭 , 𝐡𝐞𝐭𝐞𝐫𝐨𝐩𝐡𝐨𝐛𝐢𝐜 , 𝐞𝐱-𝐟𝐫𝐢𝐞𝐧𝐝𝐬 ! <img width="45" height="40" alt="image" src="https://github.com/user-attachments/assets/28f20f1f-41ae-4602-84a5-e8457f65e5e7" />
+>## <p align="center"> hi im too damn lazy to think up some extra stuff to throw in here, so im just gonna leave this here... <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/af89136f-60bb-4ed5-817e-772f7d497f4f" />
 
 <img width="1000" height="8" alt="image" src="https://github.com/user-attachments/assets/274adacc-e5d7-4515-93e6-ffb6ae907a59" />
 
